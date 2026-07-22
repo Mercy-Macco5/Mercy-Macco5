@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Mercy-Macco5
-- 👀 I’m interested in Blockchain and DeFi 
+- 👋 Hi, I’m mercyar 
+- 👀 I just do things 
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate with like minds
 - 📫 Reach me on X formerly known as Twitter
-  (@_mercymacco)
+  (@_mercyar)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: writing, singing 
 
